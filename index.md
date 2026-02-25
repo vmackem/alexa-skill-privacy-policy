@@ -78,7 +78,7 @@ This Skill is designed for residents of Sunderland, UK, and uses Sunderland City
 
 If you have questions about this privacy policy or how we handle your data, please contact:
 
-**Email**: [Your contact email - please update this]
+**Email**: dowen93to98@hotmail.com
 
 ## Compliance
 
